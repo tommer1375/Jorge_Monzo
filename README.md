@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Jorge
+- 📫 How to reach me: jorgema13@gmail.com
